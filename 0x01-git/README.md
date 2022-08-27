@@ -1,1 +1,1 @@
-i love computer
+it time to study
